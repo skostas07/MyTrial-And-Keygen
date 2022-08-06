@@ -1,6 +1,7 @@
 # MyTrial
 
 Special product id generate for PC.
+
 Icluded keygen
 
 Visual Studio Basic 2022
